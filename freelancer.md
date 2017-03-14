@@ -7,5 +7,6 @@ While the term "independent contractor" would be used in a higher register of En
 
 
 <a href="https://www.truelancer.com/freelance-data-entry-jobs" >Data Entry Jobs</a>
+<br>
 <a href="https://www.truelancer.com/freelance-jobs" >Freelance Jobs</a>
 
